@@ -9,15 +9,9 @@ $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure
 <img width="536" height="391" alt="5HY2G0s" src="https://i.pinimg.com/1200x/dc/f1/78/dcf1786bb9fd7102e8afdf560c25d0a2.jpg" />
 </div>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://top-her69.atabook.org/)⠀⠀⠀[Ko-Fi](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://t0pher69.straw.page/)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[Atabook](https://topher69.atabook.org/)⠀⠀⠀[Ko-Fi](https://ko-fi.com/zydr4t3/commissions)⠀⠀⠀[Strawpage](https://t0pher69.straw.page/)
 
 ******
-
-<div align="center">
-
-![spotify-github-profile](spotify-github-profils.svg)
-
-</div>
 
 </details>
 

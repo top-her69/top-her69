@@ -15,7 +15,7 @@ $${\space \color{#e0e0e0}but \space \color{#e0e0e0}it \space \color{#e0e0e0}sure
 
 <div align="center">
 
-![spotify-github-profile](spotify-github-profile.svg)
+![spotify-github-profile](spotify-github-profils.svg)
 
 </div>
 
